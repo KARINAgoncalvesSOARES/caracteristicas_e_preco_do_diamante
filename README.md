@@ -1,0 +1,1 @@
+# caracteristicas_e_preco_do_diamante
